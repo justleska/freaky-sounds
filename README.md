@@ -9,7 +9,7 @@ recorded me saying "yo what's up" on the shure SM7B and messed up for a bit with
 ## br-.mp3
 ![image](https://github.com/user-attachments/assets/0f9d71db-8b01-4a60-9592-74780b46d665)
 
-## bzhshhzhs.flac
+## bzhshhzhs.flac (superior file type)
 ![image](https://github.com/user-attachments/assets/9b8c8b07-7d09-437e-99eb-63e357a21790)
 
 ## wiwiwiwi-.mp3
