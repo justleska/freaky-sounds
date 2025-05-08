@@ -1,2 +1,2 @@
 # freaky-sounds
-hmmm  freaky ahh sounds
+recorded me saying "yo what's up" on the shure SM7B and messed up for a bit with it on adobe audition and i got some interesting results...
